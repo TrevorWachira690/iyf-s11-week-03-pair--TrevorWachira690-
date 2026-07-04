@@ -1,4 +1,4 @@
-# Contributors
+# Trevor and Finah's Collaboration Project
 
 ## Team Members
 
